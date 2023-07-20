@@ -9,10 +9,6 @@
 
 - 📝 I regularly write articles on [https://blog.dzx-tunnel.quest/](https://blog.dzx-tunnel.quest/)
 
-- 💬 Wechat **fight41love**
-
-- 📫 How to reach me **1248482491@qq.com**
-
 - 📄 Know about my experiences [https://blog.dzx-tunnel.quest/about](https://blog.dzx-tunnel.quest/about)
 
 - ⚡ Fun fact **JDM🚗,Guitar🎸**
