@@ -7,9 +7,7 @@
 
 - 🌱 I’m currently learning **AI**
 
-- 📝 I regularly write articles on [https://blog.dzx-tunnel.quest/](https://blog.dzx-tunnel.quest/)
-
-- 📄 Know about my experiences [https://blog.dzx-tunnel.quest/about](https://blog.dzx-tunnel.quest/about)
+- 📝 I regularly write articles on [https://blog.dongzx.lol/](https://blog.dongzx.lol/)
 
 - ⚡ Fun fact **JDM🚗,Guitar🎸**
 
